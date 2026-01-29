@@ -1,1 +1,6 @@
-# Fcffsesites
+<p><!-- x-tinymce/html --></p>
+<p>Website: <a href="https://fc-ff.se/">https://fc-ff.se/</a>&nbsp;</p>
+<p><strong>FC Finans &amp; F&ouml;rs&auml;kring AB &auml;r ett litet, personligt bolag som bedriver r&aring;dgivningsverksamhet b&aring;de f&ouml;r privatpersoner &amp; bolag</strong></p>
+<p>Vi vet att alla m&auml;nniskor har olika f&ouml;ruts&auml;ttningar och v&aring;r vision &auml;r att varje m&auml;nniska &auml;r unik s&aring; d&auml;rf&ouml;r m&aring;ste varje m&ouml;te vara lika unik f&ouml;r att p&aring; s&aring; s&auml;tt kunna finna den l&ouml;sning som passar b&auml;st f&ouml;r den individ som vi m&ouml;ter.<br />Genom att lyssna p&aring; v&aring;ra kunder och vara lyh&ouml;rda g&auml;llande ditt behov kan vi tillsammans finna en l&ouml;sning som &auml;r skr&auml;ddarsydd f&ouml;r dig som kund.</p>
+<p>oberoende f&ouml;rs&auml;kringsr&aring;dgivning<br />b&auml;st pensionsr&aring;dgivning privatperson<br />j&auml;mf&ouml;r pensionsr&aring;dgivare sverige&nbsp;<br />hj&auml;lp med tj&auml;nstepension f&ouml;retag<br />konsumenternas f&ouml;rs&auml;kringsbyr&aring;<br />oberoende f&ouml;rs&auml;kringar<br />konsumenternas f&ouml;rs&auml;kringsbyr&aring; kontakt<br />konsument r&aring;dgivning<br />konsumenternas bank och finansbyr&aring;<br />f&ouml;rs&auml;kringsr&aring;dgivare</p>
+<p>&nbsp;</p>
